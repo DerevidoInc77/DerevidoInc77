@@ -1,4 +1,4 @@
-Hello, my name is Cal Farrell Woods and I am 
+Hello, my name is Cal Farrell Woods, I am 
 21 years old and I live in Drogheda, Ireland. 
 I went to PLC college in Drogheda, County 
 Louth, Ireland for two years where I received 
